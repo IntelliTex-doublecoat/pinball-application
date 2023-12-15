@@ -1,0 +1,1 @@
+Red outline marks nylon spandex fabrics, black outline marks acrylic holder.
